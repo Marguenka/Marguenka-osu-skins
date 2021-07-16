@@ -7,7 +7,7 @@ if you are searching for other skins please dm me on osu/discord Marguenka#4032
 ![EyBB4AUXAAIc03I](https://user-images.githubusercontent.com/84647661/125899318-af5f49e4-2650-4f55-9f56-a21a9370dad3.png)
 
 
-# Uberlengen Skin
+# Uberlegen+Swifty(remake)
 
 
 # dokidokilolixx SKIN aaaaa
