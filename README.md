@@ -10,7 +10,13 @@ if you are searching for other skins please dm me on osu/discord Marguenka#4032
 # Uberlengen Skin
 
 
-# Dokidokiaaaaaaa
+# dokidokilolixx SKIN aaaaa
 
 
-# 
+# vv_idke trail
+
+
+# Mystia - Aristia (edit)
+
+
+# WWW v1.6
